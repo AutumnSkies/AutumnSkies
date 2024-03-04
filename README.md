@@ -1,5 +1,5 @@
 - I am @AutumnSkies (Autumn) I use She/It pronouns
-- I do computer hardware engineering, pool operation, theater tech work and I am hoping to be a certified EMT
+- I do computer hardware engineering, pool operation, theater tech work and I am studying to be a certified EMT
 - I work alone
 - Message or email me if you have a comment on something I am working on
 
